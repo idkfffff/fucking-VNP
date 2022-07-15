@@ -1,2 +1,0 @@
-# fucking-VNP
-stupid
